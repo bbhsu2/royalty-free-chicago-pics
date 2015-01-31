@@ -1,1 +1,1 @@
-# royalty-free-chicago-pics
+# Royalty Free Chicago Pictures
